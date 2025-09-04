@@ -9,9 +9,6 @@
 3. Get Personalized Consistent AI Recommendation
    <img width="1710" height="1107" alt="image" src="https://github.com/user-attachments/assets/64b33cda-a2a0-4e54-b47f-02a79cdece4a" />
 
-
-Uploading Screen Recording 2025-09-05 at 12.32.21 AM.mov…
-
-
 4. Full Tutorial
+   https://www.loom.com/share/4b51ec7c7de844f98da85c8703273d92?sid=117ca0b2-6133-4ced-9266-4e8f74116773
    
